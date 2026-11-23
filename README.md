@@ -1,3 +1,2 @@
-# This site is being repurposed.
+# Welp. here we go again.
 
-# It has served its purpose.
